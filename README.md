@@ -5,7 +5,7 @@
 
 You can find me sending a message in my:
 
-📸 Instagram -> @EnzoCFG
+📸 Instagram -> @EnzoCFG \n
 🐦 Twitter... or X -> @oEnzoCastro
 ✉️ Email -> enzocastru@gmail.com
 
