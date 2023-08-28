@@ -4,7 +4,7 @@
 
 🎵 - I'm love with Music too, i have some projects in mind about that
 
-🧠 - I have the objective to learn the most a can about things i like
+🧠 - I have the objective to learn the most i can about things i like
 
 You can find me sending a message in my:
 
