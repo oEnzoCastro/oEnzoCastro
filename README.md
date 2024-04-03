@@ -1,4 +1,4 @@
-👋 - Oi! My name is Enzo Castro Figueredo (@oEnzoCastro), made in Brasil(or Brazil, if you're not from Brasil)
+👋 - Oi! My name is Enzo Castro Figueredo (@oEnzoCastro)
 
 🕹️ - I'm interested and learning JavaScript/HTML/CSS, C/C++
 
