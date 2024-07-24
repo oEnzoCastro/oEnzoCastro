@@ -1,16 +1,12 @@
-👋 - Oi! My name is Enzo Castro Figueredo (@oEnzoCastro)
+👋 - Oi! Meu nome é Enzo Castro Figueredo
 
-🕹️ - I'm interested and learning JavaScript/HTML/CSS, C/C++, Java
+🕹️ - Sou interessado no aprendizado de programação, banco de dados e tecnologia
 
-🎵 - I'm love with Music too, i have some projects in mind about that
+🎵 - Tenho música como hobbie, e adoro tocar vários instrumentos
 
-🧠 - I have the objective to learn the most i can about things i like
-
-You can find me sending a message in my:
+Como me contactar:
 
 📸 Instagram -> @EnzoCFG
-
-🐦 Twitter... or X -> @oEnzoCastro
 
 ✉️ Email -> enzocastru@gmail.com
 
