@@ -49,7 +49,7 @@ Software engineer intern at **dti digital**, on international teams. Computer Sc
 
 ### `A4` &nbsp; Contact
 
-[enzocastro.dev](https://enzocastro.dev) &nbsp;·&nbsp; [LinkedIn](https://www.linkedin.com/in/YOUR-LINKEDIN) &nbsp;·&nbsp; [Email](mailto:YOUR-EMAIL)
+[enzocastro.dev](https://enzocastro.dev) &nbsp;·&nbsp; [LinkedIn](https://www.linkedin.com/in/oenzocastro) &nbsp;·&nbsp; [Email](mailto:enzocastru@gmail.com)
 
 <br>
 
